@@ -48,5 +48,5 @@
 
 
 
-Lq wklv uhdop hwhuqdo jdoh, brx vhh d eodclqj khduw. *Ornhg* lq fkdlqv ri *sdvv*, brx zrqghu zkr uhdoob glg "vhw brxu khduw deodch".
+Dfurvv wklv whpshvw ri iurchq kxhv, d vljqdo olhv grupdqw. Orfnhg lq fkdlqv ri vkdgrz, brx zrqghu zkdw sdvv zloo xqpdvn zkdw uhvwv ehklqg wkh iudph.
 --!>
